@@ -1,0 +1,1 @@
+- Slides de Apoio: https://gamma.app/docs/Multi-Factor-Authentication-MFA-e-Acesso-Condicional-bsriay2mtbponbh
