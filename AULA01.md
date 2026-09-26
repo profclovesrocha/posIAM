@@ -1,1 +1,0 @@
-- Slides de Apoio: https://gamma.app/docs/Introducao-Gestao-de-Identidade-e-Acesso-IAM-s62594gqt4uuqkx
