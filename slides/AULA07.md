@@ -1,0 +1,1 @@
+- Link de Acesso: https://gamma.app/docs/PAM-Privileged-Access-Management-dn0lljsq73fu8mi
