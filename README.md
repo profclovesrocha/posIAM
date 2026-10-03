@@ -3,7 +3,7 @@
 
 # Verificação do Aprendizado
 - Practice Test/Acesso no Link: [CLIQUE AQUI](https://notebooklm.link.google/CxqfrNqyApAA)
-- PodCast IA: https://notebooklm.link.google/V459TNGItT21
+- PodCast IA: [CLIQUE AQUI](https://notebooklm.link.google/V459TNGItT21)
 
 # AVALIAR O DOCENTE
 - AVALIAR O DOCENTE: https://forms.gle/RQhogCvz14XVhdYJ7
