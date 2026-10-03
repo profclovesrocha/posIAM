@@ -2,7 +2,7 @@
 - Prof. Cloves Rocha
 
 # Verificação do Aprendizado
-- Practice Test/Acesso no Link: https://notebooklm.link.google/2bczRWv0B5Rr
+- Practice Test/Acesso no Link: [CLIQUE AQUI](https://notebooklm.link.google/CxqfrNqyApAA)
 - PodCast IA: https://notebooklm.link.google/V459TNGItT21
 
 # AVALIAR O DOCENTE
