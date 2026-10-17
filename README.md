@@ -3,7 +3,7 @@
 # ESTUDANTES DE PÓS
 - Fernando Luiz Castro dos Santos Filho
 - Ádrian Gabriel Ferreira da Silva
-- ...
+- Ruan Angelo Oliveira Moura da Silva
 
 # Verificação do Aprendizado
 - Practice Test/Acesso no Link: [CLIQUE AQUI](https://notebooklm.link.google/CxqfrNqyApAA)
