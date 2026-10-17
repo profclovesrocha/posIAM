@@ -2,7 +2,7 @@
 - Prof. Cloves Rocha
 # ESTUDANTES DE PÓS
 - Fernando Luiz Castro dos Santos Filho
-- ...
+- Ádrian Gabriel Ferreira da Silva
 - ...
 
 # Verificação do Aprendizado
